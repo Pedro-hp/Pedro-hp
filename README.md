@@ -6,4 +6,4 @@ podem me chamar de Pedro
 - Estarei compartilhando com vocẽs meus projetos
 - E estarei usando do GITHUB para me organizar
 
-  ![](https://media1.tenor.com/m/EIlj3qUSKDUAAAAd/jjk-jujutsu-kaisen.gif)
+ ![](https://media1.tenor.com/m/qVKlQMB2DpsAAAAd/hacker-hacking.gif)
